@@ -1,2 +1,3 @@
 # Workshop
-Spencer Davis Workshop with Rice Bros Group
+Rice Bros: Spencer Davis, Matthew Pawlowski, Abu Bhalla, and Andrew Choi who chose to switch from fried rice to wings and thus angered the rice gods...
+
